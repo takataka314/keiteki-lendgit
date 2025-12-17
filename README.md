@@ -1,2 +1,0 @@
-"# keiteki-lendgit" 
-"# keiteki-lendgit" 
